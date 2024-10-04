@@ -2,3 +2,4 @@
 mozesz_mi_zaufać
 
 ## wejdz w linka :D https://www.youtube.com/watch?v=dQw4w9WgXcQ
+# odpisz okokokok skibiddi
